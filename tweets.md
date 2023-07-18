@@ -8,5 +8,3 @@
 8. If you're ready to take your leadership skills to new heights, start by unlocking your potential. This inspiring book shows you how! #LeadershipDevelopment #PersonalSuccess
 9. Ready to achieve more success in the workplace? Start by unlocking your potential. This game-changing book shows you how! #CareerSuccess #PersonalDevelopment
 10. Don't let self-doubt hold you back from becoming a great leader. Unlock your potential and achieve #LeadershipSuccess with this must-read book!
-
-
