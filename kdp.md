@@ -12,7 +12,6 @@ Whether you are just starting your career or are an experienced professional loo
 
 So, whether you are a team leader, department head, or executive, this book will help you unlock your potential for leadership success in the workplace.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
