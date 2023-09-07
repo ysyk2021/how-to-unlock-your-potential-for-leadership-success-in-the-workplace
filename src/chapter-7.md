@@ -1,5 +1,3 @@
-Chapter 7: Driving Change and Innovation
-========================================
 
 Driving change and innovation is vital for organizations to remain competitive and achieve long-term success. This chapter will explore the role of a leader in driving change and innovation, strategies for driving change and innovation in the workplace, and the importance of encouraging experimentation and risk-taking.
 

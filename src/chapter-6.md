@@ -1,5 +1,3 @@
-Chapter 6: Leading Effective Teams
-==================================
 
 Leading effective teams is a critical component of success in the workplace. This chapter will explore the role of a leader in leading effective teams, strategies for leading effective teams, and the importance of encouraging collaboration and open communication.
 
@@ -30,5 +28,4 @@ Conclusion
 ----------
 
 Leading effective teams requires strong leadership skills and a commitment to creating a supportive and collaborative team culture. By setting clear goals and expectations, providing resources and support, encouraging collaboration and open communication, recognizing achievements, holding team members accountable, and creating a culture that values learning and growth, leaders can unlock their potential for success in leading effective teams. With these strategies in place, leaders can inspire and empower their teams to achieve great things and drive long-term success.
-
 

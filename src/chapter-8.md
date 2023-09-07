@@ -1,5 +1,3 @@
-Chapter 8: Measuring Leadership Success
-=======================================
 
 Effective leadership requires ongoing assessment and adjustment in order to continually improve. In this chapter, we will explore methods for measuring leadership success and analyzing personal and team performance data.
 

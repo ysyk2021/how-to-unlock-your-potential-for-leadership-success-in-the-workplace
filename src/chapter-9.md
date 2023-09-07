@@ -1,5 +1,3 @@
-Chapter 9: Applying Leadership Skills to Organizational Leadership
-==================================================================
 
 The Benefits of Applying Leadership Skills to Organizational Leadership
 -----------------------------------------------------------------------

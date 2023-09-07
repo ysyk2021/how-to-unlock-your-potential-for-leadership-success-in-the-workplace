@@ -1,5 +1,3 @@
-Chapter 4: Overcoming Leadership Challenges
-===========================================
 
 Common Challenges Faced by Leaders in the Workplace
 ---------------------------------------------------

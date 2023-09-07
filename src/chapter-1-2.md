@@ -1,5 +1,3 @@
-Benefits of Leadership Success in the Workplace
-========================================================================
 
 Leadership success in the workplace can have a significant impact on an individual's career and personal development, as well as the success of their team and organization. This chapter will explore the benefits of leadership success in the workplace.
 

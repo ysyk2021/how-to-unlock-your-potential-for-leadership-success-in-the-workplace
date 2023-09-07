@@ -1,5 +1,3 @@
-Chapter 5: Building a Personal Leadership Brand
-===============================================
 
 The Importance of Building a Personal Leadership Brand
 ------------------------------------------------------

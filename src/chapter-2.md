@@ -1,5 +1,3 @@
-Chapter 2: Understanding Leadership Potential
-=============================================
 
 Leadership potential is a critical component of success in the workplace. This chapter will explore the definition of leadership potential, the impact it can have on personal and professional development, and strategies for identifying leadership potential.
 
