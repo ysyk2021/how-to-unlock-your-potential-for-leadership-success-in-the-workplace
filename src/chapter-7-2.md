@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Driving Change and Innovation in the Workplace
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change and innovation are essential drivers of success in the modern workplace. In this chapter, we explore effective strategies for leaders to foster change and encourage innovation within their organizations.
 

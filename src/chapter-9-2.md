@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Using Leadership Skills to Become a Better Organizational Leader
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As you ascend the leadership ladder, it's essential to adapt and refine your skills to suit the broader scope and responsibility of organizational leadership. In this chapter, we provide strategies to harness and deploy your leadership skills effectively, ensuring you flourish as an exceptional organizational leader.
 

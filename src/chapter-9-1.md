@@ -1,5 +1,4 @@
-Chapter 10: The Benefits of Applying Leadership Skills to Organizational Leadership
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As you've journeyed through this book on unlocking your potential for leadership success in the workplace, you've gained valuable insights and skills. In this final chapter, we explore the significant advantages of applying your leadership skills to organizational leadership.
 

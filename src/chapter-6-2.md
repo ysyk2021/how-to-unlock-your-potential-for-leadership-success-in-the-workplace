@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Leading Effective Teams
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective leadership in the workplace often involves leading teams to achieve common goals and deliver exceptional results. In this chapter, we will explore key strategies for leading effective teams that will unlock your potential for leadership success.
 

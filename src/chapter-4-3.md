@@ -1,5 +1,4 @@
-Chapter 9: Encouraging Resilience and Adaptability
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the ever-evolving landscape of the workplace, leaders who can foster resilience and adaptability within themselves and their teams are well-positioned for success. This chapter explores the importance of these qualities and strategies to encourage them.
 

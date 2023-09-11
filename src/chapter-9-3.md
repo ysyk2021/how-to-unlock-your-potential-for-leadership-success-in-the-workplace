@@ -1,5 +1,4 @@
-Chapter 7: Leading with Authenticity and Purpose
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of leadership success, authenticity and purpose are like guiding stars. They not only illuminate your path but also inspire and rally those around you. In this chapter, we explore the profound impact of leading with authenticity and purpose.
 

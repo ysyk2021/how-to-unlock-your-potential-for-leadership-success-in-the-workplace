@@ -1,5 +1,4 @@
-Chapter 5: The Impact of Leadership Potential on Personal and Professional Development
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding the profound influence of leadership potential on personal and professional growth is crucial for anyone aiming to unlock their leadership success. In this chapter, we explore how leadership potential shapes both personal and professional development, paving the way for a fulfilling and impactful career.
 

@@ -1,5 +1,4 @@
-Chapter 3: Identifying Personal Values and Strengths
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To unlock your potential for leadership success in the workplace, it's essential to first understand yourself on a deeper level. This chapter delves into the importance of identifying your personal values and strengths, laying the foundation for effective leadership.
 

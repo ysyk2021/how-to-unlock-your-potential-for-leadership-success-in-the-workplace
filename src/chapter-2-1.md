@@ -1,5 +1,4 @@
-Chapter 2: Definition of Leadership Potential
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before embarking on your journey to unlock your leadership potential, it's essential to understand what leadership potential truly means. This chapter delves into the definition of leadership potential and the key components that comprise it.
 

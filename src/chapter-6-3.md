@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Collaboration and Open Communication
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's workplace, effective leadership hinges on fostering collaboration and maintaining open lines of communication. This chapter explores the pivotal role of these aspects in unlocking your potential for leadership success.
 

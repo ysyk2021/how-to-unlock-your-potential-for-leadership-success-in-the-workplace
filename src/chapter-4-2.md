@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Overcoming Leadership Challenges
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership is a journey filled with various challenges, and how you navigate them defines your success. This chapter explores effective strategies for overcoming common leadership challenges and achieving your full potential as a leader.
 

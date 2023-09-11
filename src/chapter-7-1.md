@@ -1,5 +1,4 @@
-Chapter 7: The Role of a Leader in Driving Change and Innovation
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership is not only about managing the status quo but also about propelling organizations forward through change and fostering innovation. In this chapter, we delve into the pivotal role leaders play in driving change and innovation within the workplace.
 

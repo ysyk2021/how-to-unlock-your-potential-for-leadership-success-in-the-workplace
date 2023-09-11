@@ -1,5 +1,4 @@
-Chapter 9: Methods for Measuring Leadership Success
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Success in leadership isn't merely a subjective judgment; it can and should be quantified and evaluated. In this chapter, we explore various methods and metrics for measuring leadership success in the workplace.
 

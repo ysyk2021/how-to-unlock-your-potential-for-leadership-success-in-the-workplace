@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Building a Personal Leadership Brand
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your personal leadership brand is your unique identity as a leader---how you are perceived by others, your values, your strengths, and the impact you make in the workplace. In this chapter, we explore strategies for cultivating and strengthening your personal leadership brand.
 

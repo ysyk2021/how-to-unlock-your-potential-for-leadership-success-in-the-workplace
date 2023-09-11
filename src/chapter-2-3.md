@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Identifying Leadership Potential
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying leadership potential is a crucial step in nurturing future leaders within an organization. In this chapter, we will explore effective strategies and methods for recognizing individuals who possess the qualities and capabilities needed for leadership success in the workplace.
 

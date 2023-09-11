@@ -1,5 +1,4 @@
-Chapter 5: Common Challenges Faced by Leaders in the Workplace
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership in the workplace is a rewarding yet challenging role. This chapter delves into some of the common challenges that leaders encounter and provides insights on how to navigate them successfully.
 

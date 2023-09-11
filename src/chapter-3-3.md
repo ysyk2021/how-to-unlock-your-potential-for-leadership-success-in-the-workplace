@@ -1,5 +1,4 @@
-Chapter 5: Practicing Self-Awareness and Emotional Intelligence
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey towards leadership success, self-awareness and emotional intelligence are indispensable tools. This chapter delves into the significance of these qualities and provides strategies for their development.
 

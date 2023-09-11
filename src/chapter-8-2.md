@@ -1,5 +1,4 @@
-Chapter 8: Analyzing Personal and Team Performance Data
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the ever-evolving landscape of leadership, data-driven decision-making has become an essential tool for unlocking your potential for leadership success. In this chapter, we delve into the significance of analyzing personal and team performance data to enhance your leadership capabilities.
 

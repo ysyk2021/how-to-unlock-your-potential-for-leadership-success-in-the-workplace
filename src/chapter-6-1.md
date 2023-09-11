@@ -1,5 +1,4 @@
-Chapter 6: The Role of a Leader in Leading Effective Teams
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership success in the workplace is intricately tied to a leader's ability to guide and nurture effective teams. This chapter explores the critical role leaders play in leading teams to success.
 
